@@ -1,6 +1,3 @@
-```mermaid 
-
-
 ```mermaid
 flowchart TB
 
@@ -192,6 +189,4 @@ doria --> doria_d1 & doria_d2
   
 
 linkStyle default stroke-width:2px,fill:none,stroke:green;
-```
-
 ```
