@@ -1,15 +1,15 @@
 ### Backstory
-[[Orietta Doria-Colonna]], 11th Princess of Melfi is daughter of [[Oberto Colonna]] - prominent steel merchant and widower to [[Maria Francesca Colonna]] and step daughter to [[Anna Maria Doria]] of the [[House of Doria]].
+[[Orietta Doria-Colonna]], 11th Princess of Melfi (a lesser title bought with the considerable wealth of her father) is daughter of [[Oberto Colonna]] - prominent steel merchant and widower to [[Maria Francesca Colonna]] and step daughter to [[Anna Maria Doria]] of the [[House of Doria]].
 
 Orietta has 3 younger blood sisters, [[Maria Colonna]], [[Teresa Colonna ]]and[[ Francesca Colonna]] named mostly in honour of their deceased mother. These triplets were born under an ill omen and are stunted, strange.. cursed...
 
-Her father, Oberto, lost his beloved wife in childbirth (the triplets) and struggled to find a place for them in his heart and home. He sent them to foster care when Orietta was a young girl. 
+Her father, Oberto, lost his beloved wife in childbirth (the triplets) and struggled to find a place for them in his heart and home. He sent them to foster care a year later and cast his eyes elsewehere to continue the rise of his merchant house.
 
 This fostering took place in a neighbouring province. There the young girls did not thrive, they were not cared for.  
 
-As the amount of trouble they caused spread their local legend, they attracted the wrong sort of attention and fell into the company and as rumour had it, worse, of a fallen entertainer (now peddlar of tricks for coins) [[Bartolomeo]]. 
+As they grew the amount of trouble they caused increased. By the time they were 15 their local legend had so spread that they attracted the wrong sort of attention and fell into the company and as rumour had it, worse, of a fallen entertainer (now peddlar of tricks for coins) [[Bartolomeo]]. Bartolomeo was on the run from the local authorities for a spate of grave robberies that were DEFINITELY NOT him.
 
-Upon hearing of the triplets historical and privileged relations, and on the run from the local authorities for a spate of grave robberies that were DEFINITELY NOT him he swears, Bartolomeo helped them abscond from the foster care they were placed with and together with his  two large hounds [[Ignazio and Stefano]] the group returned to Oberto Colonna's home town.
+Upon hearing of the triplets historical and privileged relations, and before the girls could be married off or forced to work, Bartolomeo helped them abscond and together with his two large hounds [[Ignazio and Stefano]] the group returned to Oberto Colonna's home town.
 
 In the years since their absence Oberto's mercantile star had risen. War - ever a great source of profit - had driven the demand for his steel through the roof. His money made him impossible for other rich, noble families to ignore.
 
