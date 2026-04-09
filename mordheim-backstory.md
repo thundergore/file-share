@@ -1,7 +1,7 @@
 ### Backstory
-[[Orietta Doria-Colonna]], 11th Princess of Melfi (a lesser title bought with the considerable wealth of her father) is daughter of [[Oberto Colonna]] - prominent steel merchant and widower to [[Maria Francesca Colonna]] and step daughter to [[Anna Maria Doria]] of the [[House of Doria]].
+[[Orietta Doria-Colonna]], 11th Princess of Melfi (a lesser title bought with the considerable wealth of her father) is daughter of [[Oberto Colonna]] - prominent steel merchant and widower to [[Maria Francesca Colonna]] and step daughter to [[Anna Maria Doria]] last unmarried daughter of consequence of the [[House of Doria]].
 
-Orietta has 3 younger blood sisters, [[Maria Colonna]], [[Teresa Colonna ]]and[[ Francesca Colonna]] named mostly in honour of their deceased mother. These triplets were born under an ill omen and are stunted, strange.. cursed...
+Orietta has 3 younger blood sisters, [[Maria Colonna]], [[Teresa Colonna]] and [[Francesca Colonna]] named mostly in honour of their deceased mother. These triplets were born under an ill omen and are stunted, strange.. cursed...
 
 Her father, Oberto, lost his beloved wife in childbirth (the triplets) and struggled to find a place for them in his heart and home. He sent them to foster care a year later and cast his eyes elsewehere to continue the rise of his merchant house.
 
