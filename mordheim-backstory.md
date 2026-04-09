@@ -3,7 +3,7 @@
 
 Orietta has 3 younger blood sisters, [[Maria Colonna]], [[Teresa Colonna]] and [[Francesca Colonna]] named mostly in honour of their deceased mother. These triplets were born under an ill omen and are stunted, strange.. cursed...
 
-Her father, Oberto, lost his beloved wife in childbirth (the triplets) and struggled to find a place for them in his heart and home. He sent them to foster care a year later and cast his eyes elsewehere to continue the rise of his merchant house.
+Her father, Oberto, lost his beloved wife in childbirth (the triplets) and struggled to find a place for them in his heart and home. He sent them to foster care a year later and cast his eyes elsewhere to continue the rise of his merchant house.
 
 This fostering took place in a neighbouring province. There the young girls did not thrive, they were not cared for.
 
@@ -13,7 +13,7 @@ Upon hearing of the triplets historical and privileged relations, and before the
 
 In the years since their absence Oberto's mercantile star had risen. War - ever a great source of profit - had driven the demand for his steel through the roof. His money made him impossible for other rich, noble families to ignore.
 
-Orietta showed great potential too, she was smart, beautiful, graceful, quick to learn. She showed a capacity to excel in whatever she chose. She had a combative streak and nothing exemplified this more than her torturing of the local sons of simple folk. These young lads, strong but dumb often met a stick or other improvised weapon that pushed the odds firmly in Orietta's favour should they try their luck with her.
+Orietta showed great potential too, she was smart, beautiful, graceful, quick to learn. She showed a capacity to excel in whatever she chose. She had a combative streak and nothing exemplified this more than her torturing of the local sons of simple folk. These young lads, strong but dumb, often met a stick or other improvised weapon that pushed the odds firmly in Orietta's favour should they try their luck with her.
 
 Her father was never one to stifle his only remaining daughter. And so it was that he beamed with pride as she was granted apprenticeship under famed fencer & sword smith [[Marcantonio Aria]].
 
